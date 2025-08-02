@@ -1,5 +1,6 @@
 # Induction - Day 1
- 30 July 2025 
+
+30 July 2025 
  
 The first day of induction program started on a spiritual note. The day began with path of japji sahib, shabad kirtan and anand sahib followed by ardas for a bright and successful future for all the students in the premises of GNDEC’s Gurudwara Sahib. After taking almighty’s blessing we were escorted to auditorium where after receiving our welcome kits we were seated according to our branches. There the session continued with motivational speeches from highly intellectual speakers.
 

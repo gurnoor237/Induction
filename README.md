@@ -68,9 +68,9 @@ The induction day-3 was concluded.
 
 ## DAY-4 5 August 2025
 
-Day 4 was the shortest induction day till now. It started at 1:30 p.m where we were supposed to attend a few seminars in auditorium but scheudule was changed. We were escorted to our respective classrooms and get taught by our seniors again.
+Day 4 was the shortest induction day till now. It started at 1:30 p.m where we were supposed to attend a few seminars in auditorium but scheudule was changed. We were escorted to our respective classrooms where our lesson by seniors begun.
 ### First lecture
-It was a peer to peer learning where they discussed c++ again. They started the session by asking questions related to previous c++ session conducted. Than they dwelled more deeper into what was already taught. They again explained the concept of variables and gave us some codes to write. I was given the opportunity to write my code on the board. The class ended with them making us familiar with the language. 
+It was a peer to peer learning where the seniors discussed c++ again. They started the session by asking questions related to previous c++ session conducted. Than they dwelled more deeper into what was already taught. They again explained the concept of variables and gave us some codes to write. I was given the opportunity to write my code on the board. The class ended with them making us familiar with the language. 
 
 ### Millets- Super food
 Last session of the day was by Mrs. Shaffy Makkar on the topic "Millets- super food". 

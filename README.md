@@ -106,6 +106,32 @@ The continuation of Mr.Gautam Murria sir’s motor sports event was done in this
 Last class of the day was of English by Prof. Nisha mam. She made us introduce ourselves where we had to mention our names,branch,schooling,aim,accomplishmets etc. She encouraged students and talked about nervouseness and body language. Later on she told us the English syllabus. She also talked about the fact that literature is no longer the curriculum's part and instead we'll be working on our communication skills . This way we can communicate in any interview or in any type of workplace enviornmnet with ease. She concluded the lesson by answering the student's questions.
 
 
+## DAY-6 7 August 2025
+
+This day started in classrooms rather than in auditorium this time.
+
+### Maths Lecture
+Our first lecture was of Mathematics by Prof. Rajbir kaur mam. She introduced herself and then asked us questions about concepts we learnt in 12th grade. She satrted with applications of derivative. The lecture was anbout minima,maxima , increasing, decreasing and graphs. She explained everything in detail and asked us questions and motivated us to try to answer to boost our confidence. Then she ended the lecture by giving us a home assignment of reviewing differential equations.
+
+### Physics lecture
+This lecture was by Prof. Jaspreet singh sir. He started the lesson by briefly asking questions about things he made us review in his previous lecture. Then he started teaching us about vectors. Then we went a step ahead to vector fields and dell vector. Then he explained basics of Gradient and made us solve a few questions related to it. He concluded the class by giving us a numerical as home assignment to solve.
+
+Then after a short break we were made to assemble in the auditorium for evening session.
+
+### Dr. Lakhvir Singh Khanna 
+Next session was by Dr. Lakhvir singh sir incharge of CML (Centre for multi-faceted learning). He introduced himself and then introduced CML to us. He explained the functioning of CML club and gave us brief overview of the study process for a great future. He also shared some on-campus tips for us. It was very interactive session. Students were clapping non-stop showing their interest in his session. Later on he introduced us to a website of Sawayam-NPTEL. He told us the importance of this website. He explained about how this website allows students to get enrolled in 6 week 12 week etc courses from IIT's. He explained that if we get completion certificates from this program then we can have our 3rd year fully free for training. Later on he made a student volunteer to sign in on the website and explained the steps on how to enroll in the course. Lastly he urged students to register and study some courses from there for our own benefit in long run.
+
+### Dr. Jasvir Singh Garewal 
+Last session was by Dr. Jasvir singh sir ( Incharge of NSS). Due to shortage of time he showed us some glimpses of NSS. Firstly a team from NSS performed shabad kirtan and then sang a mishrit raag. It was full of melody and peace. Then tehy showcased a video about birds dying from plastic. The conclusion was that humans are creating a dangerous enviornment for other animals to live and NSS team takes initiative to correct these mistakes. They donate blood, clean the littered areas , plant trees and much more. Then they played a game.  A ball was passed to both sides of auditorium and student who catched the ball was seleted. Then they had to make each other laugh. It was tie but sir gave us a huge message behind it. He explained how it is so difficult to make someone happy but so easy to destroy their happiness. Then 2 of the members from NSS did a short comedy scene. It was very fun. Just as the session was getting more and more interesting it ended. Hence our day was concluded.
+
+
+## DAY-7 8 August 2025
+This day was only about workshop. I only had 2 workshop sessions and then my day at college ended.
+
+### WORKSHOP- CARPENTRY
+My workshop was of Carpentry. Sir's made us introduce us and then after waiting for some time for more students to come the workshop started. Sir gave us a brief description of each workshop. Then he talked about carpentry and the use of wood in it. He gave an introduction to what we will be doing these upcoming years in the workshop. Then he showed us pieces of different types of wood (deodar , pile wood etc) and then briefly talked about each of them. After that we were shown a notebook which we will have to maintain for workshops. He explained the distribution of marks and importance of attendance. The uniforms for workshops were told and some instructions like tying our hairs in workshops were given.Then another sir gave us some overviews of every wood present on the table. Some possible damages to the wood and types of polishing of woods. They explained that wood are of 2 types : hard and soft. They discussed that the best way to identify them is by looking at their leaves. Big round leaves of trees indicate hard wood and small thin leaves like that of christmas tree means soft wood. They also taught about things to check before buying a wood and also gave rough estimates of costs of wooden planks of some common trees. The session ended with them guiding us about potential books to buy for carpentry.
+The day was concluded.
+
 
 
 

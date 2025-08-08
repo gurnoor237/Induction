@@ -128,7 +128,7 @@ Last session was by Dr. Jasvir singh sir ( Incharge of NSS). Due to shortage of 
 ## DAY-7 8 August 2025
 This day was only about workshop. I only had 2 workshop sessions and then my day at college ended.
 
-### WORKSHOP- CARPENTRY
+### Workshop: Carpentry
 My workshop was of Carpentry. Sir's made us introduce us and then after waiting for some time for more students to come the workshop started. Sir gave us a brief description of each workshop. Then he talked about carpentry and the use of wood in it. He gave an introduction to what we will be doing these upcoming years in the workshop. Then he showed us pieces of different types of wood (deodar , pile wood etc) and then briefly talked about each of them. After that we were shown a notebook which we will have to maintain for workshops. He explained the distribution of marks and importance of attendance. The uniforms for workshops were told and some instructions like tying our hairs in workshops were given.Then another sir gave us some overviews of every wood present on the table. Some possible damages to the wood and types of polishing of woods. They explained that wood are of 2 types : hard and soft. They discussed that the best way to identify them is by looking at their leaves. Big round leaves of trees indicate hard wood and small thin leaves like that of christmas tree means soft wood. They also taught about things to check before buying a wood and also gave rough estimates of costs of wooden planks of some common trees. The session ended with them guiding us about potential books to buy for carpentry.
 The day was concluded.
 
